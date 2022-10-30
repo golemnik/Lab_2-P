@@ -1,0 +1,1 @@
+proga lab 2. pokemo..whaaaat???
